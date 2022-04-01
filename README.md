@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-I'm [Moepoi](https://moepoi.dev) (19 y.o) ! :sunglasses:
+I'm [Benjamin oliver](https://moepoi.dev) (16 y.o) ! :sunglasses:
 
-I'd like to do project that has relation to anime. :ghost:
+I'm a high school student :ghost:
 
 :page_with_curl: I'm currently learning:
 <br><br>
